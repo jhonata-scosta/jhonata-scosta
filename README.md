@@ -16,7 +16,7 @@
 
 - ⚡ Fun fact **I love working in the Linux terminal.**
 
-- 📄 Know about my experiences **[https://docs.google.com/document/d/e/2PACX-1vRzGBwgNpsDR9947Yq3RwjRmB77tqJFnIpiVgVTZKz_b0olgLyzBvkT_0i1KmWBoTgLT-3D8Il9zgY1/pub](https://docs.google.com/document/d/e/2PACX-1vRzGBwgNpsDR9947Yq3RwjRmB77tqJFnIpiVgVTZKz_b0olgLyzBvkT_0i1KmWBoTgLT-3D8Il9zgY1/pub)**
+- 📄 Know about my experiences **[Here!!](https://docs.google.com/document/d/e/2PACX-1vRzGBwgNpsDR9947Yq3RwjRmB77tqJFnIpiVgVTZKz_b0olgLyzBvkT_0i1KmWBoTgLT-3D8Il9zgY1/pub)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
